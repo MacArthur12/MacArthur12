@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @MacArthur12
+- 👀 I’m interested in Coding, gaming etc
+- 🌱 I’m currently learning Coding
+- 💞️ I’m looking to collaborate on Coding
+- 📫 How to reach me Discord: MacArthur#9707
